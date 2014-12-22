@@ -35,8 +35,84 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The defence of the article: Christ descended into Hell VVith arguments obiected against the truth of
+
+1. To the right reuerend Father in God, Iohn by the grace of God Archbishop of Caunterburye, Adam Hyll Minister of the woord of God, Wisheth grace, peace, and life euerlasting.
+
 #####Body#####
+
+1. Christ descended into Hell.
+
+1. ¶ The reply of Adam Hill Minister, to an answere made by Alexander Humes, to a Sermon preached at Chippenham▪ in Wiltes the 28. day of February, 1589. of the descending of Christ into Hell.
+
+    _ Humes. Sectio prima.
+
+    _ Hill.
+
+    _ Humes. Sectio. 2.
+
+    _ Hill.
+
+    _ Humes. Sectio tertia.
+
+    _ Hill.
+
+    _ Humes. Sectio. 4.
+
+    _ Hill.
+
+    _ Humes Sectio 5.
+
+    _ Hill.
+
+    _ Humes Sectio. 6▪
+
+    _ Hyll.
+
+    _ Humes. Sectio. 7.
+
+    _ Hill.
+
+    _ Humes. Sectio 8.
+
+    _ Hill.
+
+    _ Humes. Sectio. 9.
+
+    _ Hill.
+
+    _ Humes Sectio 10.
+
+    _ Hill.
+
+    _ Humes. Sectio 11.
+
+    _ Hill.
+
+    _ Humes. Sectio. 12.
+
+    _ Hill.
+
+    _ Humes. Sectio. 13.
+
+    _ Hill.
+
+    _ Humes. Sectio 14▪
+
+    _ Hill.
+
+    _ Humes Sectio. 15.
+
+    _ Hyll.
+
+    _ Humes. Sectio. 16.
+
+    _ Hyll.
+
+    _ Humes Sectio. 17.
+
+    _ Hill.
+
+    _ The conclusion to M. Humes.
 
 **Types of content**
 
